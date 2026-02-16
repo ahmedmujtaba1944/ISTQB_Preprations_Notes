@@ -1,0 +1,1 @@
+# ISTQB_Preprations_Notes
